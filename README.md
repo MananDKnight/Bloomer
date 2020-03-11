@@ -1,4 +1,4 @@
 # Bloomer
-Just starting
+Just starting.
 Let's see how it goes
-Hoping foor the best.
+Hoping for the best.
